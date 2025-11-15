@@ -1,0 +1,1 @@
+# The-Chronon-Equation-Time-as-a-Universal-Entropy-Process-in-the-Tanfarid-Quantum-Thermodynamic-Unive
